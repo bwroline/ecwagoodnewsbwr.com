@@ -1,2 +1,2 @@
-# ecwagoodnewsbwr.com
-Evangelical church
+# ecwagoodnewsbwr
+ EvangelicalChurch
